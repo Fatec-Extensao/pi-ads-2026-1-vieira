@@ -1,1 +1,0 @@
-# pi-ads-2026-1-Vieira
